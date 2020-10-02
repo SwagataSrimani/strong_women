@@ -1,2 +1,4 @@
 # strong_women
-be strong and go ahead
+all women stand beside men.
+they can serve our nation.
+do not underestimate women.
